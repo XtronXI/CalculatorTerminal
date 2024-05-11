@@ -1,3 +1,3 @@
 # Ive made this app for some reason
 
-I Do Care
+SO NEVER CARE
